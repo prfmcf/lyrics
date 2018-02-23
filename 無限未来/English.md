@@ -1,67 +1,70 @@
-# 無限未来
+# 無限未来 (Mugen Mirai)
 
 ```
-無限未来
+Mugen Mirai (Infinite Future)
 Perfume
 
-作詞: 中田ヤスタカ
-作曲: 中田ヤスタカ
+Lyric: Yasutaka Nakata
+Composer: Yasutaka Nakata
+Translation: @prfmcf
+
+*This lyric is created by @prfmcf. The translation might be different to actual meaning.
 ```
 
 
 
 ---
 
-時間を止めて 瞬きも見える
+We can see blinking by stopping time
 
-目を凝らす未来 印象 連続 天の上
+Strain eyes to the future, continuous impression above the sky
 
-震える光 瞬く世界が 少しずつ少しづつ
+Vibrating light, shiny word is little bit, little bit
 
-加速してく Story Story (Maybe so Maybe so Maybe)
+Speeding up Story Story (Maybe so Maybe so Maybe)
 
-醒めない夢に (Maybe so Maybe so Maybe)
+Never ending dream (Maybe so Maybe so Maybe)
 
-さよなら今夜 Starry (Maybe so Maybe so Maybe)
+Goodbye Starry night (Maybe so Maybe so Maybe)
 
-ほら飛ぶよ Are you ready?
-
-Maybe so Maybe so Maybe
-
-Ahh Maybe so Maybe so 無限未来
+Look, I'll fly Are you ready?
 
 Maybe so Maybe so Maybe
 
-ほら飛ぶよ Are you ready?
+Ahh Maybe so Maybe so Mugen Mirai
+
+Maybe so Maybe so Maybe
+
+Look, I'll fly Are you ready?
 
 
 
-初めての Wonder Land それぞれ花咲いて
+First time of Wonder Land, each flower blooms
 
-大地を撫でる 魔法の音に乗って
+Get a magical sound that stroke ground
 
-眩しい光 体を慣らして 少しずつ少しづつ
+Get your body used to shiny light, a little bit, little bit
 
-加速してく Story Story (Maybe so Maybe so Maybe)
+Speeding up Story Story (Maybe so Maybe so Maybe)
 
-醒めない夢に (Maybe so Maybe so Maybe)
+Never ending dream (Maybe so Maybe so Maybe)
 
 (Maybe so Maybe so Maybe)
 
-さよなら今夜 Starry (Maybe so Maybe so Maybe)
+Goodbye Starry night (Maybe so Maybe so Maybe)
 
 Starry Story (Maybe so Maybe so Maybe)
 
 Story (Maybe so Maybe so Maybe)
 
-さよなら今夜 Starry (Maybe so Maybe so Maybe)
+Goodbye Starry night (Maybe so Maybe so Maybe)
 
-ほら飛ぶよ Are you ready?
-
-Maybe so Maybe so Maybe
-
-Ahh Maybe so Maybe so 無限未来
+Look, I'll fly Are you ready?
 
 Maybe so Maybe so Maybe
 
-ほら飛ぶよ Are you ready?
+Ahh Maybe so Maybe so Mugen Mirai
+
+Maybe so Maybe so Maybe
+
+Look, I'll fly Are you ready?
