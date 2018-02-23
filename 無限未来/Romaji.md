@@ -4,7 +4,7 @@
 Mugen Mirai
 Perfume
 
-Lyrics: Yasutaka Nakata
+Lyric: Yasutaka Nakata
 Composer: Yasutaka Nakata
 ```
 
